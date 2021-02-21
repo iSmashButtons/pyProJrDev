@@ -1,0 +1,3 @@
+# What's For Dinner?
+
+It was Thanksgiving, and the scent of succulent roast `noun` wafted through my house. "`name`, it's time to `verb`!" my mother called. I couldn't wait to get my `body part` on that `adjective` Thanksgiving meal. My family sat around the dining-room `noun`. The table was laid out with every kind of `noun` imaginable. There was a basket of hot buttered `plural noun` and glasses of sparkling `type of liquid`. The `adjective` turkey sat, steaming, next to a tureen of `noun` gravy. A bowl of ruby-red `noun` sauce, a sweet-`noun` casserole, and a dish of mashed `plural noun` tempted my taste buds. But the dish I looked forward to most was Grandma `name`'s famous `noun` pie. Thanksgiving is my favorite holiday, `body part` down.

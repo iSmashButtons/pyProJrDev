@@ -1,0 +1,3 @@
+# Party Time!
+
+One of the most `adjective` things about graduating is that my `plural noun` are `verb ending in -ing` a huge party! I decided to have a backyard barbecue for all my family and `plural noun`. I've invited my best friends `female celebrity`, `name`, and of course my teacher Mrs. `silly word`. My dad is going to `verb` hamburgers and `type of food` on his shiny new `noun`. He always thinks his `type of food` tastes really `adjective`, but I think they taste like `adjective` `type of shoe` (plural). My mom is going to make her famous `something alive` salad, which is my favorite `noun` ever! Mom said after we finish `verb ending in -ing`, we can go swimming in our new `noun`. `silly word`!

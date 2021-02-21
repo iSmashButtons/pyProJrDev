@@ -1,0 +1,3 @@
+# Next Door Neighbors
+
+We have new `plural noun` living in `noun` next door. He is a/an `adjective` salesman for a/an `noun` company, and she teaches `noun` in a private `noun`. Last night, we were invited to their `adjective` home for a potluck `noun`. We brought a/an `adjective` `type of food` casserole. After dinning, we went into their `adverb` decorated family `noun`, sat in front of their roaring `noun`, and toasted `plural noun`. Before we left, our host insisted on taking out his `adjective` `noun` - which we mistook for an ancient `noun` - to play a few country `plural noun` on it. All in all, it was an `adjective` evening, and since then, the four of us have become as thick as `plural noun`.

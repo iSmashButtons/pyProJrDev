@@ -1,0 +1,3 @@
+# Afraid of The Dark
+
+I was home alone and scared out of my `plural noun`. I could hear the wind `verb ending in -ing`, and off in the distance a/an `noun` was howling. I crossed the room, locked the `noun`, and climbed into bed, pulling the `plural noun` over my `body part`. Then it happened. I could hear a/an `noun` `verb ending in -ing` up the stairs. My `body part` started to chatter and my knees began `verb ending in -ing`. The `noun` was thrust open and there was a huge `noun` with hair all over his `body part`. It was my father. "Hi, we're home," he said `adverb`. "Hope you weren't afraid of staying home alone." "No," I said, lying through my `body part`.

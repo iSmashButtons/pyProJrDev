@@ -1,0 +1,3 @@
+# Political Speech
+
+Ladies and gentlemen, on this smelly occasion it is a privilege to address such a/an huge-looking group of cars. I can tell from your smiling girls that you will support my quickly program in the coming election. I promise that, if elected, there will be a/an book in every fan and two houses in every garage. I want to warn you against my colorful opponent, Mr. John. The man is nothing but a/an greasy driveway. He has a/an prety character and is working penis in sky with the criminal element. If elected, I promise to eliminate vice. I will keep the clouds off the city's streets. I will keep crooks from dipping their boobs in the public till. I promise you large government, fat taxes, and delicious schools.
